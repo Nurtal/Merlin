@@ -1,4 +1,4 @@
 Merlin
 ======
 
-Gloire et fortune
+Gloire et fortune et prosperité
